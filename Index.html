@@ -1,0 +1,4 @@
+# BSIT 3-2 ROCKS!
+
+1,2, and 3 let's go!!!
+I am Mark Sherwin L. Tolentino, I am proud IT student!
